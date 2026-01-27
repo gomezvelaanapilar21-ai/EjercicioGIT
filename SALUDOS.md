@@ -14,7 +14,7 @@ Hola aqui vamos a ir poniendo nuestros nombres segun vayamos accediendo a este f
 13. 
 14. 
 15. 
-16. 
+16. Eirene Boatemaa Reynolds
 17. 
 18. 
 19. 
