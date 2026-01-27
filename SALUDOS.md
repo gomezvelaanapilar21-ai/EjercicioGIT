@@ -5,7 +5,7 @@ Hola aqui vamos a ir poniendo nuestros nombres segun vayamos accediendo a este f
 4. 
 5. 
 6. 
-7. 
+7. Soy Manuel &#x1F44B
 8. 
 9. 
 10. 
