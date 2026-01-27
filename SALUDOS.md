@@ -14,7 +14,7 @@
 13. 
 14. 
 15. 
-16. Eirene Boatemaa Reynolds
+16. Soy Eirene Boatemaa Reynolds
 17. 
 18. 
 19. 
