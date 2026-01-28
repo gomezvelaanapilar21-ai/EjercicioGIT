@@ -25,7 +25,7 @@ Hola aqui vamos a ir poniendo nuestros nombres segun vayamos accediendo a este f
 18. Alejandro Molina
 17. Soy Clint Orozco
 18. 
-19. 
+19. linea dior
 20. 
 21. Johann
 22. 
